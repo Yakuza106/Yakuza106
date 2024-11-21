@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Yakuza106
+- 👀 I’m interested in mama kolegi
+- 🌱 I’m currently learning czytac bo nie umiem
+- 📫 How to reach me: @Yakuza.106
+- 😄 Pronouns: dzierżawcze
